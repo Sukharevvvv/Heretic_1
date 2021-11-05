@@ -1,1 +1,1 @@
-# Heretic_1
+Учеба Geek Brains
